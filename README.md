@@ -71,7 +71,7 @@ DECEMBER:
 
 <img width="76" alt="10" src="https://user-images.githubusercontent.com/80979705/123784112-1b0d6c00-d8a5-11eb-8e1b-01abfd8a18a5.PNG">
 
-It likely still makes sense to open the business as neither month has too much rain, although you can expect slightly higher average rainfall in the month of June compared to September.
+It likely still makes sense to open the business as neither month has too much rain, although you can expect slightly higher average rainfall in the month of December compared to June.
 
 
 
